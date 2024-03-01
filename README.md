@@ -1,1 +1,1 @@
-# salaamustadz.github.io
+# salaamustadz
